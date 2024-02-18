@@ -19,3 +19,9 @@ https://github.com/Cinnab0nBak3ry/notheme-revolt-edition
 https://userstyles.world/style/14815/notheme-glitch-edition
 
 ![image](https://github.com/Cinnab0nBak3ry/notheme-repo/assets/76500838/c488bd96-d5a8-4b11-894b-456bd685da0f)
+
+
+
+## wtf is a notheme
+
+colorful pixel art icons, nintendo ds bios font, 0px border radius, and borders that divide most if not everything. 
